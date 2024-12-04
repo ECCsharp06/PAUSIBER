@@ -1,0 +1,1 @@
+# BU ŞEY ÇALIŞYO MU
